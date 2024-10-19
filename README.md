@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+![](https://hit.yhype.me/github/profile?user_id=66476896)
 <!--
 **ChristophBg/christophbg** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
